@@ -2,4 +2,4 @@
 
 Howdy folks!
 
-I'm kidding, We don't really talk like that here in Texas.
+I'm kidding, we don't really talk like that here in Texas.
